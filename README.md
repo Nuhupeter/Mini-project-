@@ -1,1 +1,1 @@
-# Mini-project-
+Nuhu Peter mini project 
